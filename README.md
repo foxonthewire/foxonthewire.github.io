@@ -1,6 +1,6 @@
 # Fox on the Wire
 ## A Complete and Utter Genius
----
+
 Hey. it's me, Fox on the Wire. You can see my amazing and completely genius content in these places:
 
 - [TikTok](https://tiktok.com/@foxonthewire)
