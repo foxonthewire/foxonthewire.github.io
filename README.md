@@ -9,6 +9,10 @@ Hey. it's me, Fox on the Wire. You can see my amazing and completely genius cont
 - [itch.io](https://foxonthewire.itch.io/)
 - [SoundCloud](https://on.soundcloud.com/Xnfuy)
 - [X/Twitter](https://x.com/foxonthewire)
+- [Bluesky](https://bsky.app/profile/foxonthewire.bsky.social)
+- [Instagram](https://www.instagram.com/foxonthewire?igsh=YTUzY2o2dzZ6emJm)
+- [Threads](https://www.threads.net/@foxonthewire)
+
 
 ---
 
