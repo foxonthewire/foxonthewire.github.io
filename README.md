@@ -1,5 +1,8 @@
 # Fox on the Wire
 ## A Complete and Utter Genius
+[PROOF OF WOLFLINK BEING A P3DO/Z00](https://archive.org/details/wolflink-info)
+
+
 
 Hey. it's me, Fox on the Wire. You can see my amazing and completely genius content in these places:
 
