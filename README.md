@@ -8,6 +8,7 @@ Hey. it's me, Fox on the Wire. You can see my amazing and completely genius cont
 - [YouTube](https://youtube.com/@foxonthewire?si=IzA3N9-Gs_7IicjH)
 - [itch.io](https://foxonthewire.itch.io/)
 - [SoundCloud](https://on.soundcloud.com/Xnfuy)
+- [X/Twitter](https://x.com/foxonthewire)
 
 ---
 
