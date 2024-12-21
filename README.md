@@ -16,7 +16,9 @@ Hey. it's me, Fox on the Wire. You can see my amazing and completely genius cont
 - [Instagram](https://www.instagram.com/foxonthewire?igsh=YTUzY2o2dzZ6emJm)
 - [Threads](https://www.threads.net/@foxonthewire)
 
+---
 
+Also see my collection of [WebXR software on here](https://foxonthewire.github.io/vrgames/)
 ---
 
 I akso make apps! Check out my latest one, Jonkler VS Wolflink! Now on [Amazon App Store](https://www.amazon.com/dp/B0DJ1YQBGL/ref=apps_sf_sta)
